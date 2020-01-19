@@ -4,4 +4,4 @@ If you have any issues, comments or feedback regarding fourby please get in touc
 
 You can email at:
 
-[kemalenver@gmail.com](kemalenver+fourby@gmail.com)
+[kemalenver+fourby@gmail.com](kemalenver+fourby@gmail.com)
